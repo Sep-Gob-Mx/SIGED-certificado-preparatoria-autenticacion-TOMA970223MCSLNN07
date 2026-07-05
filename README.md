@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-TOMA970223MCSLNN07
+TOMA970223MCSLNN07
